@@ -1,0 +1,1 @@
+Hi my name is Libin, and I'm currently completing Lighthouse prep work for the bootcamp.
